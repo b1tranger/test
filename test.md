@@ -4,6 +4,10 @@
 
 <img width="493" height="573" alt="image" src="https://github.com/user-attachments/assets/e7a3e3ad-8340-45e6-a32a-3909e558ddf4" />
 
+[Academic Calendar 2026.pdf](https://github.com/user-attachments/files/28764200/Academic.Calendar.2026.pdf)
+[academic-calendar-2026-IMG_0001.pdf](https://github.com/user-attachments/files/28764199/academic-calendar-2026-IMG_0001.pdf)
+
+
 [Course History 26.03.26.pdf](https://github.com/user-attachments/files/26272545/Course.History.26.03.26.pdf)
 [AIUB_GradeReport23-54952-3.pdf](https://github.com/user-attachments/files/26370150/AIUB_GradeReport23-54952-3.pdf)
 [NDC_Report_31.03.26-2.pdf](https://github.com/user-attachments/files/26370355/NDC_Report_31.03.26-2.pdf)
