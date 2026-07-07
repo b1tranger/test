@@ -4,7 +4,8 @@
 
 <img width="493" height="573" alt="image" src="https://github.com/user-attachments/assets/e7a3e3ad-8340-45e6-a32a-3909e558ddf4" />
 
-[Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756316/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)
+[Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756316/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)[example-1_digital marketing case competition.pdf](https://github.com/user-attachments/files/29756439/example-1_digital.marketing.case.competition.pdf)
+
 
 
 [Academic Calendar 2026.pdf](https://github.com/user-attachments/files/28764200/Academic.Calendar.2026.pdf)
