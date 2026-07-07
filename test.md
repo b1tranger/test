@@ -4,6 +4,9 @@
 
 <img width="493" height="573" alt="image" src="https://github.com/user-attachments/assets/e7a3e3ad-8340-45e6-a32a-3909e558ddf4" />
 
+[Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756048/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)
+
+
 [Academic Calendar 2026.pdf](https://github.com/user-attachments/files/28764200/Academic.Calendar.2026.pdf)
 [academic-calendar-2026-IMG_0001.pdf](https://github.com/user-attachments/files/28764199/academic-calendar-2026-IMG_0001.pdf)
 
