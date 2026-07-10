@@ -8,6 +8,7 @@
 
 
 [Business Terms Overview_GPT.pdf](https://github.com/user-attachments/files/29906171/Business.Terms.Overview_GPT.pdf)
+[Business Case Competitions Terms_GEMINI.pdf](https://github.com/user-attachments/files/29906298/Business.Case.Competitions.Terms_GEMINI.pdf)
 
 
 [MarXcellence Workshop-1 slides ver-1.pdf](https://github.com/user-attachments/files/29901705/MarXcellence.Workshop-1.slides.ver-1.pdf)
