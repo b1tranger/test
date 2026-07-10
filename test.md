@@ -7,7 +7,8 @@
 [Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756316/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)[example-1_digital marketing case competition.pdf](https://github.com/user-attachments/files/29756439/example-1_digital.marketing.case.competition.pdf)
 
 [MarXcellence Workshop-1 slides ver-1.pdf](https://github.com/user-attachments/files/29901705/MarXcellence.Workshop-1.slides.ver-1.pdf)
-[Uploading MarXcellence Workshop-1 handnote.pdf…]()
+[MarXcellence Workshop-1 handnote.pdf](https://github.com/user-attachments/files/29905271/MarXcellence.Workshop-1.handnote.pdf)
+
 
 
 [Academic Calendar 2026.pdf](https://github.com/user-attachments/files/28764200/Academic.Calendar.2026.pdf)
