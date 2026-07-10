@@ -7,6 +7,7 @@
 [Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756316/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)[example-1_digital marketing case competition.pdf](https://github.com/user-attachments/files/29756439/example-1_digital.marketing.case.competition.pdf)
 
 [MarXcellence Workshop-1 slides ver-1.pdf](https://github.com/user-attachments/files/29901705/MarXcellence.Workshop-1.slides.ver-1.pdf)
+[Uploading MarXcellence Workshop-1 handnote.pdf…]()
 
 
 [Academic Calendar 2026.pdf](https://github.com/user-attachments/files/28764200/Academic.Calendar.2026.pdf)
@@ -36,11 +37,6 @@
 # \# Certification
 [CISCO IT Essentials - Letter Certificate.pdf](https://github.com/user-attachments/files/23825920/CISCO.IT.Essentials.-.Letter.Certificate.pdf)
 
-
-# b1tsched files
-
-[demo routine autumn 2025.xlsx - Sheet1.pdf](https://github.com/user-attachments/files/21580362/demo.routine.autumn.2025.xlsx.-.Sheet1.pdf)
-
 [academic-calendar-2026-IMG_0001.pdf](https://github.com/user-attachments/files/24494144/academic-calendar-2026-IMG_0001.pdf)
 
 
@@ -49,18 +45,6 @@
 oU1TS portal download [link ](https://github.com/user-attachments/assets/84b61e38-12c6-44bb-b860-cad7e270d54c))
 
 
-
-# SVG
-
-### # webp
-
-
-
----
-
-### # test hypothesis
-
-new pic [link](https://github.com/user-attachments/assets/396b9f20-332c-461e-ac37-3d7d7df40676): <br>![skeleton-spam](https://github.com/user-attachments/assets/396b9f20-332c-461e-ac37-3d7d7df40676)
 
 old pic-1 [link](https://github.com/user-attachments/assets/a6468a75-3982-4b5d-a24e-924a346ef1ae) (removed text from old commit)
 
