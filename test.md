@@ -6,6 +6,7 @@
 
 [Waliullah Turjo - bizcomp - Business Competition Bangladesh.pdf](https://github.com/user-attachments/files/29756316/Waliullah.Turjo.-.bizcomp.-.Business.Competition.Bangladesh.pdf)[example-1_digital marketing case competition.pdf](https://github.com/user-attachments/files/29756439/example-1_digital.marketing.case.competition.pdf)
 
+[Case_MarXcellence 2026_Round 1 Case.pdf](https://github.com/user-attachments/files/29952264/Case_MarXcellence.2026_Round.1.Case.pdf)
 
 [Business Terms Overview_GPT.pdf](https://github.com/user-attachments/files/29906171/Business.Terms.Overview_GPT.pdf)
 [Business Case Competitions Terms_GEMINI.pdf](https://github.com/user-attachments/files/29906298/Business.Case.Competitions.Terms_GEMINI.pdf)
