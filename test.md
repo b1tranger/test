@@ -38,7 +38,8 @@
 
 ---
 
-[b1tranger_cv_2026.1.pdf](https://github.com/user-attachments/files/32561676/b1tranger_cv_2026.1.pdf)
+[b1tranger_cv_2026.1.pdf](https://github.com/user-attachments/files/32563654/b1tranger_cv_2026.1.pdf)
+
 
 [b1tranger_cv_v2.2.pdf](https://github.com/user-attachments/files/23690808/b1tranger_cv_v2.2.pdf)
 
