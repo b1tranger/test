@@ -38,6 +38,9 @@
 
 ---
 
+[b1tranger_cv_2026.2.pdf](https://github.com/user-attachments/files/32848391/b1tranger_cv_2026.2.pdf)
+
+
 [b1tranger_cv_2026.1.pdf](https://github.com/user-attachments/files/32563654/b1tranger_cv_2026.1.pdf)
 
 
